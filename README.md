@@ -6,3 +6,9 @@
 
 ![selfie of myself looking into the camera with shoulder length hair and purple eye makeup aswell a purple sweater](https://avatars.githubusercontent.com/u/164337196?v=4)
 
+## Things I like:
+
+- Video Games 🎮
+- K-Pop 🎵
+- Trying out new dishes 🍜🧆🍰🍵🍱
+
