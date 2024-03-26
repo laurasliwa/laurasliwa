@@ -4,3 +4,5 @@
 - 🏡 Based in _Ruhrgebiet, NRW, Germany_
 - 💜 Pronouns: **they/them**
 
+![selfie of myself looking into the camera with shoulder length hair and purple eye makeup aswell a purple sweater](https://avatars.githubusercontent.com/u/164337196?v=4)
+
