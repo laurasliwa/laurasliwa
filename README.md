@@ -13,3 +13,5 @@
 - Trying out new dishes 🍜🧆🍰🍵🍱
 
 ⚡ Fun fact: I was in a musical group for 5 years in my twenties.
+
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=1124558466&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
