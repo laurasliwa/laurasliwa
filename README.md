@@ -12,3 +12,4 @@
 - K-Pop 🎵
 - Trying out new dishes 🍜🧆🍰🍵🍱
 
+⚡ Fun fact: I was in a musical group for 5 years in my twenties.
